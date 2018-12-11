@@ -1,1 +1,1 @@
-Jiayin Music Studio (佳音琴行) Management Center
+Jiayin Music Studio Management Center
